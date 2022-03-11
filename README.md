@@ -1,2 +1,2 @@
 # Raedme
-Luisuimi333@gmaol.com
+Luisuimi333@gmail.com
